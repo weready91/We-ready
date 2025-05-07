@@ -1,2 +1,2 @@
 # We-ready
-We ready to serve you
+We always ready to serve you
